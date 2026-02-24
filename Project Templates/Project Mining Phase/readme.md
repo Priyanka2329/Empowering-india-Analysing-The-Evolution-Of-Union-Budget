@@ -1,0 +1,1 @@
+Mining phase in pdf
